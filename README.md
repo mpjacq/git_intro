@@ -1,1 +1,2 @@
 Madeline Jacques
+jacquema@oregonstate.edu
